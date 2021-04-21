@@ -1,0 +1,2 @@
+# financial-freedom
+just joking
